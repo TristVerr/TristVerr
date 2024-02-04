@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TristVerr
+- 👋 Hi, I’m Tristan
 - 👀 I’m interested in many things
 - 🌱 I’m currently learning many things
 - 💞️ I’m looking to collaborate on nothing right now.
